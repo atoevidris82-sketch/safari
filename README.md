@@ -1,0 +1,2 @@
+# safari
+[safari.resturant]
